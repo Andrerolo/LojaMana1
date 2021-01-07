@@ -1,0 +1,1 @@
+# LojaMana1
